@@ -1,0 +1,1 @@
+# Dizi_Aritmetik_Geometrik_Harmonik_Ort
